@@ -1,0 +1,2 @@
+# rizalbakri.github.io
+mymine
